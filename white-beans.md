@@ -1,4 +1,4 @@
-# Josh's White Beans
+# White Beans
 
 * 1# great northern beans
 * 1 med onion
