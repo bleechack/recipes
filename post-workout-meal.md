@@ -26,7 +26,7 @@ oven on a foil covered baking sheet.
 When 10 minutes remains on the timer, add the broccoli to the baking sheet and
 start warming a pan on the stove.
 
-When the timer elapses, add the asparagus and begin cooking the meat in the
-pan.
+When the timer elapses, add the asparagus to the baking sheet in the oven and
+begin cooking the meat in the pan.
 
 > Note: be very hungry
